@@ -1,4 +1,4 @@
-# ASIAN KUNG-FU GENERATION – Re:Re:
+# ASIAN KUNG-FU GENERATION – Re:Re: (2016 Version)
 
 > **歌詞登録ステータス：同期歌詞あり**
 
